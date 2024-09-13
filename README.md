@@ -1,1 +1,1 @@
-# My-resume-Trainee-Junior--Game-Developer
+# My-Resume
